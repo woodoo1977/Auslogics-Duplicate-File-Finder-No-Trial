@@ -1,0 +1,1 @@
+# Auslogics-Duplicate-File-Finder-No-Trial
